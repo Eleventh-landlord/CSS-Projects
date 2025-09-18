@@ -12,4 +12,12 @@
 ## Project 4
 ![Image](https://github.com/user-attachments/assets/cfbc656f-590f-4526-90f5-935cb5b13906)
 
+## Project 5
+![Image](https://github.com/user-attachments/assets/af7e5e25-16d0-4c73-9938-2b548a632948)
+
+## Project 6
+![Image](https://github.com/user-attachments/assets/6714cab1-8ed7-4bfe-a4ba-a4389a79251c)
+
+## Project 7
+![Image](https://github.com/user-attachments/assets/f062dc97-d90c-4070-827d-f4a8143b165d)
 
